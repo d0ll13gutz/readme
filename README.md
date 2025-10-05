@@ -8,7 +8,7 @@
                                     
 
 $${\color{pink}dollie,\ roman,\ joan!\}$$
-$${\color{pink}I'm\ 14,\ lesbian,\ intersex,\ tgirl,\ and \ I \ love \ talking \ to \ ppl!\}$$
+$${\color{pink}I'm\ 14,\ femme\ lesbian,\ intersx,\ transfem,\ and \ I \ love \ talking \ to \ ppl!\}$$
 
 
 
